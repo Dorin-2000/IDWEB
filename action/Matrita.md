@@ -1,0 +1,1 @@
+Lumea lui Matrix este o iluzie care există doar în visul nesfârșit al umanității condamnate. Lumea rece a viitorului, în care oamenii sunt doar baterii în sistemele informatice.
