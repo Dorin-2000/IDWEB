@@ -1,1 +1,0 @@
-Borat: Assessing Scope of Culture for the Benefit of the Glorious Nation of Kazakhstan este un film de comedie fals documentar britanic-american regizat de Larry Charles și cu comedianul englez Sacha Baron Cohen, care este, de asemenea, co-scenarist și unul dintre actorii filmului. producatori.

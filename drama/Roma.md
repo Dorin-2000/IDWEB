@@ -1,1 +1,0 @@
-Mexico City, 1970. O fată indigenă cu numele scurt Cleo (Yalitza Aparicio) lucrează în casa unui medic bogat și a soției sale. Responsabilitățile ei includ creșterea a patru copii, îngrijirea bunica familiei și curățarea câinelui mereu rahat. După o întâlnire cu un bandit local, Cleo rămâne însărcinată.
