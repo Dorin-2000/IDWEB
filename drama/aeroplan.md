@@ -1,0 +1,1 @@
+"Avion!" este un film de comedie american din 1980 regizat de Jim Abrahams și frații David și Jerry Zucker. O parodie a adaptării cinematografice a romanului lui Arthur Hailey „Runway 08”.
